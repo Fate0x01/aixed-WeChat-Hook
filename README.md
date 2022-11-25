@@ -1,4 +1,4 @@
-# 记录一件令我无比气愤的事情
+# 记录一件令我无比气愤的事情 
 
 ## 为欺骗者所建的耻辱墙，他一辈子都吃不上四个菜。
 QQ 364831018
@@ -17,7 +17,7 @@ Github主页  https://github.com/snlie
 
 看雪账号  https://bbs.pediy.com/user-home-261986.htm
 
-CSDN账号  https://blog.csdn.net/xedazss?type=blog @axied
+CSDN账号  https://blog.csdn.net/xedazss?type=blog @aixed
 
 论坛账号  https://bbs.125.la/home.php?mod=space&uid=500067
 
