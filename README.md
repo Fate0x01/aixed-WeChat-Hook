@@ -13,7 +13,7 @@ QQ 364831018
 
 Telegram @Aixed
 
-Github主页  https://github.com/snlie
+Github主页  https://github.com/aixed
 
 看雪账号  https://bbs.pediy.com/user-home-261986.htm
 
